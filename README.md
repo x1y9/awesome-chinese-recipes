@@ -1,4 +1,5 @@
 ### video
+* 老冯烤羊蝎子馆: [bilibili](https://space.bilibili.com/526315634)
 * 大师的菜: [bilibili](http://space.bilibili.com/236711132/) or [爱奇艺](https://www.iqiyi.com/paopao/u/1453850316/video/)
 * 王刚: [下厨房](https://www.xiachufang.com/cook/117571982/) or [youtube](https://www.youtube.com/channel/UCg0m_Ah8P_MQbnn77-vYnYw/featured)
 * 小彪美食: [bilibili](https://space.bilibili.com/150645682)
